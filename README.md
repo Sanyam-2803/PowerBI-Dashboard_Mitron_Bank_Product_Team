@@ -1,4 +1,4 @@
-[Strategic Insights to Mitron Bank_new credit card launch.pdf](https://github.com/user-attachments/files/21432226/Strategic.Insights.to.Mitron.Bank_new.credit.card.launch.pdf)
+
 
 
 ![Customer demographic analysis](https://github.com/user-attachments/assets/6612fb94-cd2d-4ff9-b231-8b1adb787762)
